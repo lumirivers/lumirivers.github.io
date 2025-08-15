@@ -1,20 +1,18 @@
-# Kurashi no Hitokufuu（暮らしのひと工夫）
+<!doctype html>
+<html lang="ja">
+<head>
+  <meta charset="utf-8">
+  <title>暮らしのひと工夫｜いいモノ見つけ隊</title>
+  <meta name="viewport" content="width=device-width, initial-scale=1">
+  <!-- Pinterest domain verify -->
+  <meta name="p:domain_verify" content="b11b748d9f6e3066c23ecf800842fd44">
+</head>
+<body>
+  <main>
+    <h1>暮らしのひと工夫｜いいモノ見つけ隊</h1>
+    <p>このサイトは当アカウント運用のための公式サイトです。</p>
+    <p><a href="/privacy-policy/">プライバシーポリシーはこちら</a></p>
+  </main>
+</body>
+</html>
 
-ようこそ、Kurashi no Hitokufuu の公式サイトへ。  
-このサイトでは、私たちの活動やPinterest連携のための情報を公開しています。
-
----
-
-## プライバシーポリシー
-当サイトのプライバシーポリシーはこちらからご覧いただけます。  
-[プライバシーポリシーを表示する](https://lumirivers.github.io/kurashinohitokufuu-privacy-policy/)
-
----
-
-## お問い合わせ
-ご質問やご依頼は、下記メールアドレスまでお願いいたします。  
-📧 lumi.rivers.media@gmail.com
-
----
-
-© 2025 Kurashi no Hitokufuu. All rights reserved.
