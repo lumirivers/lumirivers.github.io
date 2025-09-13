@@ -20,7 +20,7 @@ description: "贈り物を選ぶ時間って、案外わくわくする。すき
 肩に位置するロースの部位。リブロース、サーロインへと続く最上級のひとつで、きめが細かくて柔らかい。ページで見るだけで光るサシにため息が出ます。  
 鍋でくぐらせた瞬間、脂がふわりとほどけて、上品な甘みと香りがふっと口の中に広がる——これが米沢牛の気品。寒暖差のある盆地で育った牛ならではの味わいで、脂はしっかりあるのに重くないのが本当に良い。肩ロースのバランス感、私は全力で推します。家族で囲むすき焼きの夜は、きっと忘れられない夜になる間違いなし。
 
-※わたしはすき焼き派<a href="https://px.a8.net/svt/ejp?a8mat=45DVYC+79YRQ2+242M+HUKPU&a8ejpredirect=https%3A%2F%2Fwww.yonezawa-sakano.co.jp%2Fc%2Fgr21%2Fgr203%2Fgr303%2FSKT10" rel="nofollow">わたしはすき焼き派</a> 
+<a href="https://px.a8.net/svt/ejp?a8mat=45DVYC+79YRQ2+242M+HUKPU&a8ejpredirect=https%3A%2F%2Fwww.yonezawa-sakano.co.jp%2Fc%2Fgr21%2Fgr203%2Fgr303%2FSKT10" rel="nofollow">わたしはすき焼き派</a> 
 <img border="0" width="1" height="1" src="https://www11.a8.net/0.gif?a8mat=45DVYC+79YRQ2+242M+HUKPU" alt="">
 
 ---
@@ -32,7 +32,7 @@ description: "贈り物を選ぶ時間って、案外わくわくする。すき
 サーロインの1枚は正義。200g×2枚は、贈り物としても大満足の見栄えと満足度。塩と胡椒だけで焼いても、肉の芳醇さがじゅわっと広がる。噛むたびに広がる甘みと余韻に、「これぞ米沢牛！」と納得するはず。  
 贈答品としての風格、特別感、食卓の主役感——どれをとってもサーロインは外せない名刺代わりの一枚になりそうです。
 
-※わたしはステーキ派<a href="https://px.a8.net/svt/ejp?a8mat=45DVYC+79YRQ2+242M+HUKPU&a8ejpredirect=https%3A%2F%2Fwww.yonezawa-sakano.co.jp%2Fc%2Fgr21%2Fgr39%2Fgr141%2FSTS202" rel="nofollow">わたしはステーキ派</a> 
+<a href="https://px.a8.net/svt/ejp?a8mat=45DVYC+79YRQ2+242M+HUKPU&a8ejpredirect=https%3A%2F%2Fwww.yonezawa-sakano.co.jp%2Fc%2Fgr21%2Fgr39%2Fgr141%2FSTS202" rel="nofollow">わたしはステーキ派</a> 
 <img border="0" width="1" height="1" src="https://www16.a8.net/0.gif?a8mat=45DVYC+79YRQ2+242M+HUKPU" alt="">
 
 ---
