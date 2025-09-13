@@ -38,9 +38,8 @@ date: 2025-09-13
 正直、どちらも捨てがたくて「私は抹茶派？いやいや、ほうじ茶も…」と頭を抱えるレベルです。  
 
 
-👉 [私はパフェ派]<a href="https://px.a8.net/svt/ejp?a8mat=45DVYB+2D5122+5E0Q+BW8O2&a8ejpredirect=https%3A%2F%2Fshop.giontsujiri.co.jp%2Fcollections%2Fpetit-parfait%2Fproducts%2F15001" rel="nofollow">わたしはパフェ派</a>
-<img border="0" width="1" height="1" src="https://www10.a8.net/0.gif?a8mat=45DVYB+2D5122+5E0Q+BW8O2" alt="">
-
+👉<a href="https://px.a8.net/svt/ejp?a8mat=45DVYB+2D5122+5E0Q+BW8O2&a8ejpredirect=https%3A%2F%2Fshop.giontsujiri.co.jp%2Fproducts%2F15001" rel="nofollow">わたしはパフェ派</a>
+<img border="0" width="1" height="1" src="https://www13.a8.net/0.gif?a8mat=45DVYB+2D5122+5E0Q+BW8O2" alt="">
 
 ---
 
@@ -58,7 +57,7 @@ date: 2025-09-13
 「やっぱりロールでしょ！」と言いたくなる安定感があります。
 
 
-👉 [私はロール派]<a href="https://px.a8.net/svt/ejp?a8mat=45DVYB+2D5122+5E0Q+BW8O2&a8ejpredirect=https%3A%2F%2Fshop.giontsujiri.co.jp%2Fproducts%2F15104" rel="nofollow">わたしは抹茶ロール派</a>
+👉<a href="https://px.a8.net/svt/ejp?a8mat=45DVYB+2D5122+5E0Q+BW8O2&a8ejpredirect=https%3A%2F%2Fshop.giontsujiri.co.jp%2Fproducts%2F15104" rel="nofollow">わたしは抹茶ロール派</a>
 <img border="0" width="1" height="1" src="https://www11.a8.net/0.gif?a8mat=45DVYB+2D5122+5E0Q+BW8O2" alt="">
 
 
