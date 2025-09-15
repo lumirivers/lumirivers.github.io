@@ -21,7 +21,7 @@ date: 2025-09-14
 ふんわり香る祇園辻利の「抹茶ロールケーキ」。  
 家族で切り分けても楽しい、上品でやさしい甘さの逸品です。  
 
-※きめた抹茶ロールはこちら！美味しそう  
+ 
 <a href="https://px.a8.net/svt/ejp?a8mat=45DVYB+2D5122+5E0Q+BW8O2&a8ejpredirect=https%3A%2F%2Fshop.giontsujiri.co.jp%2Fproducts%2F15104" rel="nofollow">きめた抹茶ロールはこちら！美味しそう</a>  
 <img border="0" width="1" height="1" src="https://www12.a8.net/0.gif?a8mat=45DVYB+2D5122+5E0Q+BW8O2" alt="">
 
@@ -29,7 +29,7 @@ date: 2025-09-14
 特別な日にふさわしい「米沢牛肩ロース特選【すき焼き用】」。  
 しっかりした旨みと柔らかさのバランスが絶妙で、想像するだけで笑顔になってしまいます。  
 
-※きめたお肉はこちら！楽しみ  
+
 <a href="https://px.a8.net/svt/ejp?a8mat=45DVYC+79YRQ2+242M+HUKPU&a8ejpredirect=https%3A%2F%2Fwww.yonezawa-sakano.co.jp%2Fc%2Fgr21%2Fgr203%2Fgr303%2FSKT10" rel="nofollow">きめたお肉はこちら！楽しみ</a>  
 <img border="0" width="1" height="1" src="https://www19.a8.net/0.gif?a8mat=45DVYC+79YRQ2+242M+HUKPU" alt="">
 
