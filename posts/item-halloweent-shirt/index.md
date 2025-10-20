@@ -3,7 +3,7 @@
 
 ---
 
-![ハロウィンイベント](./halloween_obake_tshirt_main.jpg)
+![ハロウィンイベント](./halloween_obake_tshirt_main.png)
 
 ハロウィンまであと少し！  
 うちの子の英語教室でも、毎年ちょっとした仮装をして“トリック・オア・トリート！”を楽しんでいます👦✨  
