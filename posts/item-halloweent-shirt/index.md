@@ -10,7 +10,7 @@ description: "動きやすくて安全なハロウィンTシャツを紹介！"
 
 I
 
-![ハロウィンTシャツ]({{ site.url }}/assets/halloween_obake_tshirt_main.png)
+![ハロウィンTシャツ](./halloween_obake_tshirt_main.png)
 
 
 ハロウィンまであと少し！  
