@@ -46,7 +46,7 @@ I
 ## 👻 ハロウィンTシャツ
 
 <a href="https://a.r10.to/hPru6J" target="_blank" rel="nofollow sponsored noopener">
-  <img src="./halloween_obake_tshirt_main.jpg" alt="ハロウィンTシャツ" style="max-width:400px; border:0; margin:2px;">
+  <img src="./halloween_obake_tshirt_main_2.png" alt="ハロウィンTシャツ" style="max-width:400px; border:0; margin:2px;">
 </a>
 
 👉<https://a.r10.to/hPru6J>
